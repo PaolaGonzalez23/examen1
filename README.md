@@ -1,3 +1,4 @@
 # examen1
-recuperatorio
-INSERTE EL LINK (https://docs.google.com/spreadsheets/d/1ozDjb4FKCG73SVLNxf_VuYVMw8d-6GRSREceBRVczVU/edit?gid=0#gid=0) 
+TECNICO SUPERIOR PRECEPTOR 
+SE ADJUNTA REPORTE:INFORME PRECEPTORES EN EL NIVEL SECUNDARIO NORESTE ARGENTINO
+(https://docs.google.com/document/d/1H6vtkkF31SYvOTlGAB81j-7pHQI0-XO3K2arXLiVPck/edit?tab=t.0)
